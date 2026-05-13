@@ -1,4 +1,4 @@
-
+professional Bartender for macOS Utility | snapshot-rollback + file-encryption offers the most advanced Bartender for macOS utility, with snapshot-rollback and file-encryption.
 
 
 
